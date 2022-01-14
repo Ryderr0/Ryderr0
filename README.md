@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Ryderr0
+- 👀 I’m interested in usefull coding
+- 🌱 I’m currently learning everything
+- 📫 You can reach me on discord Ryder#2983
